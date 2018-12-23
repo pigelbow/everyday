@@ -1,2 +1,1 @@
-# everyday
-猪胳膊的日常
+How can i use this account update in one computer.
